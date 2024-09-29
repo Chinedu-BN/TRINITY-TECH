@@ -1,2 +1,0 @@
-# TRINITY-TECH
-hmmm
